@@ -1,1 +1,5 @@
-![](https://pics.craiyon.com/2023-10-06/e3dbf4bde80f46d5bea06b69008485c7.webp)
+<div align="center">
+
+![Solstice banner](https://64.media.tumblr.com/f615bb3f102949c3e9813a5f87450175/8047e1f791881d66-a5/s640x960/811742865eed60ba2eccfabfc9f6070ff140e3ff.pnj)
+
+</div>
