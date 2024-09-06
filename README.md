@@ -11,3 +11,10 @@
 ![blood divider](https://64.media.tumblr.com/b3be0c79ba72975b9ab4412f1114670b/3d2579e35cd01510-04/s500x750/3df8bfaaae8b23213f60fc0ab84b1ca15dd168fa.gifv)
 
 </div>
+
+<div align="center">
+   <a href="https://discordapp.com/users/936969927900938290"><img src="https://64.media.tumblr.com/e768cc391177e8cd20da9e8900aa100a/28e03fb2adad654a-fd/s400x600/6ebde9882137168571a41f131bde2c588add2122.pnj" alt="Discord" height=75px title="Discord">
+   <a href="https://open.spotify.com/user/31ywx76msja4wyi2uavnv7cvskji?si=UiC5YrTPSDWiVZInwGEx_Q"><img src="https://64.media.tumblr.com/52a470c52ce3718e0015b0b8b4ef40e3/28e03fb2adad654a-30/s400x600/741536350883edecc745a7905f17b26c1d67d2e8.pnj" alt="spotif" height=75px title="Spotify">
+   <a href="https://www.instagram.com/sillysolstice?igsh=ejA0Y2kxbmUwdzdh"><img src="https://64.media.tumblr.com/9537c878026f2f244187bd962fa33e4d/28e03fb2adad654a-73/s400x600/b95bd3a33811e891091f09f3dee226b303366814.pnj" alt="insta" height=75px title="Instagram">
+   <a href="https://sillysolstice.straw.page/"><img src="https://64.media.tumblr.com/824516ab07cc4dcd47fb01d81c1baea8/28e03fb2adad654a-28/s400x600/18857b3c7fe0935caaf869bb369832c126d5f7c2.pnj" alt="strawp" height=75px title="Strawpage">
+
