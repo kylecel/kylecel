@@ -36,3 +36,9 @@
 ![star div](https://64.media.tumblr.com/78e0c2a103967123c93acaa398aeee19/a4ef0d543375d24e-97/s400x600/79a330260876888dc715e1c0582ecd3388ff13d3.pnj)
 
 </div>
+
+<div align="center">
+
+   <a href="https://the-boys.fandom.com/wiki/The_Boys_Wiki"><img src="https://64.media.tumblr.com/721437cbbbeb365881b21ec470d05a1e/8805e8da07b3148a-bf/s250x400/fe0e1eee5973a5517ef6d20670e0a4217ef6deb5.gifv" alt="the boys logo" height=140px title="Go watch The Boys!">
+
+</div>
