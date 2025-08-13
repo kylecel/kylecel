@@ -24,7 +24,7 @@
        <a href="https://64.media.tumblr.com/fe1b01b0d3a1d077864f3d29c6725b8c/55e2e7370bde2496-6c/s75x75_c1/baad5b244ff340a250498f93f0eab09f3501d5e5.webp"><img src="https://64.media.tumblr.com/fe1b01b0d3a1d077864f3d29c6725b8c/55e2e7370bde2496-6c/s75x75_c1/baad5b244ff340a250498f93f0eab09f3501d5e5.webp" alt="red swirl" height=25px title="" >
    <a href="https://www.instagram.com/sillysolstice/profilecard/?igsh=MXZzbXJyM2k2OHFkOA=="><img src="https://64.media.tumblr.com/9537c878026f2f244187bd962fa33e4d/28e03fb2adad654a-73/s400x600/b95bd3a33811e891091f09f3dee226b303366814.pnj" alt="insta" height=75px title="Instagram">
        <a href="https://64.media.tumblr.com/fe1b01b0d3a1d077864f3d29c6725b8c/55e2e7370bde2496-6c/s75x75_c1/baad5b244ff340a250498f93f0eab09f3501d5e5.webp"><img src="https://64.media.tumblr.com/fe1b01b0d3a1d077864f3d29c6725b8c/55e2e7370bde2496-6c/s75x75_c1/baad5b244ff340a250498f93f0eab09f3501d5e5.webp" alt="red swirl" height=25px title="" >
-   <a href="https://kylecell.straw.page"><img src="https://64.media.tumblr.com/824516ab07cc4dcd47fb01d81c1baea8/28e03fb2adad654a-28/s400x600/18857b3c7fe0935caaf869bb369832c126d5f7c2.pnj" alt="strawp" height=75px title="Strawpage">
+   <a href="https://kylecel.straw.page"><img src="https://64.media.tumblr.com/824516ab07cc4dcd47fb01d81c1baea8/28e03fb2adad654a-28/s400x600/18857b3c7fe0935caaf869bb369832c126d5f7c2.pnj" alt="strawp" height=75px title="Strawpage">
      
 ![penn divider](https://64.media.tumblr.com/209f8cb0c61cc78287bd95aab9ac01bf/0eac65e6fa971a2b-3f/s400x600/1b4b779b1ee787751e5bca48a9c6d4d0835c374f.pnj)
 
