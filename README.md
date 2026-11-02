@@ -4,8 +4,6 @@
 <img width="398" height="398" alt="image" src="https://github.com/user-attachments/assets/bbb42460-a340-4654-a777-f7bde7a534b3" />
 
 </div>
-<img width="300" height="380" alt="image" src="https://github.com/user-attachments/assets/21b8c4dd-5fe5-4f40-b9fc-cc8d37d38b2a" />
-<img width="398" height="398" alt="image" src="https://github.com/user-attachments/assets/bbb42460-a340-4654-a777-f7bde7a534b3" />
 
 <h6>they r so precious to me..</h6>
 
