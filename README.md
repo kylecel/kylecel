@@ -6,7 +6,7 @@
 <h2>HI IM KYLE!! HE/HIM - 17 <-- beware. this minor is turning into a major soon. </h2>
   <ul>
     <i>THINGS I LIKE INCLUDEEE</i>  
-  <b>ranfren</b> (WAIT NO STOPSOTP DONT LEAVE), <b>haunted hotel</b>, no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc
+  <b>ranfren</b> (gulp), <b>haunted hotel</b>, no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc
   </ul>
 </p>
 <p>
