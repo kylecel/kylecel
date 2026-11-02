@@ -6,7 +6,7 @@
 <h2>HI IM KYLE!! HE/HIM - 17 <-- beware. this minor is turning into a major soon. </h2>
   <ul>
     <i>THINGS I LIKE INCLUDEEE</i>  
-  <b>ranfren</b>, <b>haunted hotel</b>, no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc.. I rlly like to listen to industrial metal (esp german/dutch)
+  <b>ranfren</b>, <b>haunted hotel</b>, no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc.. I rlly like to listen to industrial/melodic death metal (esp german/dutch)
   </ul>
 </p>
 <p>
