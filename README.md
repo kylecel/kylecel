@@ -10,7 +10,7 @@
   </ul>
 </p>
 <p>
-  feel free to whisper/int with me anytime im online! I love chatting ^_^
+  feel free to whisper/int with me anytime im online! I love chatting but I rarely play ^_^
 </p>
 <p>
   <i>p.s. thank u highschool computer science class</i>
