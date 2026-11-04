@@ -8,7 +8,7 @@
 <h2>HI IM KYLE!! sickly frail victorian boy irl - 17 </h2>
   <ul>
     <i>THINGS I LIKE INCLUDEEE</i>  
-  <b>ranfren</b>, <b>haunted hotel</b>, no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc.. I rlly like to listen to industrial/melodic death metal (esp german/dutch)
+  <b>ranfren</b>, <b>haunted hotel</b> (currently disgustingly hyperfixated on this 1), no country for old men, outlast trials, tf2, metalocalypse, brba/bcs, etc etc.. I rlly like to listen to industrial/melodic death metal (esp german/dutch)
   </ul>
 </p>
 <p>
